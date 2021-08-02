@@ -10,3 +10,9 @@ tenor saxophone
 soprano saxophone
 flute
 
+Sideman gigs:
+
+Mike Nock
+Joanne Brackeen
+Herbie Hancock
+
